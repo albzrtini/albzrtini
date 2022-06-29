@@ -1,0 +1,2 @@
+- :dango: Good Morning, call me Kamile!
+- :dango: I´m 15 yo, and at the moment i am student
